@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+The goal of the Blog is to create Free Energy generators.
+Theories of Ether electrical physics are often mentioned.
+Analyzing problems, answering questions about electricity in the home to electricity belonging to classical theory.
